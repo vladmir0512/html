@@ -1,0 +1,1 @@
+https://www.figma.com/design/UTOyxYunViP0mipyb0F4si/Gaming-Platform---Web-Design--Community-?node-id=1-2&p=f&t=GqJs7uwvsrYQgVZI-0
